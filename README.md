@@ -21,4 +21,4 @@
 
 - Role - Frontend
 
-- How to reach me : with my [instagram](https://www.instagram.com/zohrefaraji212/) and [linkedin](https://www.linkedin.com/in/zohre-faraji-41822315a/)
+- How to reach me : with my [instagram](https://www.instagram.com/zohrefarajii212?igsh=MXkxdDgzY3dtcmZyaA==) and [instagram](https://www.instagram.com/zohrefaraji212/) and [linkedin](https://www.linkedin.com/in/zohre-faraji-41822315a/)
